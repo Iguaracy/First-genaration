@@ -1,1 +1,1 @@
-# First-genaration
+# First-generation
